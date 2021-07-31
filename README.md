@@ -2,7 +2,7 @@
 
 ## I am creative, hard working, loyal, try to complete my project on time and learn new things easily and quickly.!!
 
-* BTECH(2019-2023) from Giet University Gunupur, Odisha.
+* B-TECH in CSE (2019-2023) from Giet University Gunupur, Odisha.
 * Intermediate from Greenland International H.S.S, Biratnagar, Nepal.
 * Schooling from Holyland Secondary. Boarding. School, Biratnagar, Nepal.
 
