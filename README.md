@@ -7,8 +7,8 @@
 * Schooling from Holyland Secondary. Boarding. School, Biratnagar, Nepal.
 
 
-- 🎯 I’m currently learning AI.
-- 🤖 I’m working on the projects of AIML.
+- 🎯 I’m currently learning Data Science.
+- 🤖 I’m working on the projects of ML.
 - 🎮 Hobbies: Table Tennis, Esports and cycling.
 
 
