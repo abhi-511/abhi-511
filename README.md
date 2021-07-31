@@ -1,6 +1,6 @@
 ### Hi there, I'm Abhijit👋
 
-## I am creative, loyal, try to complete my project on time and learn new things easily and quickly.!!
+## I am creative, organized, flexible and quite adaptive.!!
 
 * B-TECH in CSE (2019-2023) from Giet University Gunupur, Odisha.
 * Intermediate from Greenland International H.S.S, Biratnagar, Nepal.
